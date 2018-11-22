@@ -2,7 +2,7 @@
 
 ### Группа: 10 - МИ - 2
 ### Электронная почта: yaroslav.o.aksenov@gmail.com
-### VK: [Аксёнов Ярослав](vk.com/yaraksen)
+### VK: [Аксёнов Ярослав](https://vk.com/yaraksen)
 
 
 **[ НАЗВАНИЕ ПРОЕКТА ]**
